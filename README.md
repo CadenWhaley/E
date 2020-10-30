@@ -1,1 +1,1 @@
-When using this please give me Credit!!!
+Do not Copy this! and make it for yourself. Private use Only.
